@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning como fazer site
 - 💞️ I’m looking to collaborate on em nada
 - 📫 How to reach me insta:045_farias
-- 😄 Pronouns: ele/dela
+- 😄 Pronouns: ele/ele
 - ⚡ Fun fact: é us D né vidaaaaaaaaaa
 
 <!---
